@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @mgvip01
+- 🌱 I’m currently learning OS desktop.
